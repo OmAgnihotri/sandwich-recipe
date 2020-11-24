@@ -1,0 +1,2 @@
+First take the two slices of bread.Apply mustard on one side and chilli sause on other.Then take the omlet put it on the bread and spread mayo on it.Put the lettuce on it and then put the other slice of bread on that one.
+                          !!DONE!!
